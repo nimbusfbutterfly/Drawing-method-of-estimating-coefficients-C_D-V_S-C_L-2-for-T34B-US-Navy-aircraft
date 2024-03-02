@@ -1,0 +1,1 @@
+# Drawing-method-of-estimating-coefficients-C_D-V_S-C_L-2-for-T34B-US-Navy-aircraft
